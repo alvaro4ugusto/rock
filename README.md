@@ -1,2 +1,2 @@
 # rock
-não leia isso é apenas uma oficina aqui na Rock Content!!!
+Apenas uma oficina aqui na Rock Content
